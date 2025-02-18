@@ -1,6 +1,6 @@
 # Breaking News: Delta Plane Crash at Toronto Pearson International Airport  
 
-In a shocking turn of events, a Delta Airlines flight experienced a catastrophic incident upon landing at Toronto Pearson International Airport (YYZ) today. The **delta plane crash toronto** has sent ripples across the aviation industry, raising questions about aviation safety.  
+In a shocking turn of events, a Delta Airlines flight experienced a catastrophic incident upon landing at Toronto Pearson International Airport  today. The **delta plane crash toronto** has sent ripples across the aviation industry, raising questions about aviation safety.  
 
 ## Incident Overview  
 
